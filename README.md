@@ -23,3 +23,7 @@ A: No.
 Q: Could i get on your discord server?
 
 A: Yes! Our link is: https://discord.gg/PvHHXjR
+
+Q: You dad is drunk?
+
+A: Yes.
